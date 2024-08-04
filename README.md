@@ -6,7 +6,7 @@
 
 ╔═══════☆♡☆═══════╗
 
-𓆩♡𓆪 My name is Holiday! Guy, Minor, Omnisexual, Taken, He/Him *ੈ✩‧₊˚
+𓆩♡𓆪 My name is Holiday! Guy, Minor, Multisexual, Omnisexual, Taken, He/Him *ੈ✩‧₊˚
 
 ✩₊˚.⋆☾⋆⁺₊✧ Interests ✩₊˚.⋆☾⋆⁺₊✧
 ✧˚ · . Warrior cats!, Any Studio Investigrave game (I love Coldfront and Married in red!), Jujutsu Kaisen, Honkai star rail, Horror games/movies, and more!« ˚ ༘♡ ⋆｡˚
