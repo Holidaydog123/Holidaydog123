@@ -17,7 +17,7 @@
 ❝ ❞ ✧ ೃ༄ WC; Mapleshade, Hawkfrost ¸.*☆*.¸⁭ Studio Investigrave; Winnie, Boksu, Myeong-Hoon, Bones, Rody, Protag, Nahun ☆。JJK; Megumi, Yuta, Mahito, Ijichi, Nanami ⋆ ★ HSR; Boothill, Aventurine ₊˚ʚ ᗢ₊˚✧ ﾟ. Ask for more! ✦
 
 - ͙۪۪̥˚┊❛ ❜┊˚͙۪۪̥◌ Keep in Mind! - ͙۪۪̥˚┊❛ ❜┊˚͙۪۪̥◌
-˚୨୧⋆｡˚ ⋆ I am *DIAGNOSED* with OCD, MDD, GAD ✰ ✰ ✰
+˚୨୧⋆｡˚ ⋆ I am *DIAGNOSED* with OCD, BPAD, GAD ✰ ✰ ✰
 
 ׂ╰┈➤ DNI : ̗̀➛
 ⊹ ࣪ ˖ Racist, Ableist, Homophobic, Transphobic, Bigot, etc. ﾟ+*:ꔫ:*﹤ 13 under ⌦ .｡.:*♡ People who hardcore hate on people for *harmless* interests. Reminder that each fandom has a bad and good side!! *:..｡o○☆ People with knife/cutting kinks and similar to that! ･ﾟﾟ･｡
