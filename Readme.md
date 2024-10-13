@@ -14,7 +14,7 @@
 ˖◛⁺⑅♡Lᵒᵛᵉᵧₒᵤ♡⑅⁺◛˖
 
 ＊*•̩̩͙✩•̩̩͙*˚ Favorite characters ＊*•̩̩͙✩•̩̩͙*˚ 
-❝ ❞ ✧ ೃ༄ WC; Mapleshade, Hawkfrost ¸.*☆*.¸⁭ Studio Investigrave; Winnie, Boksu, Myeong-Hoon, Bones, Rody, Protag, Nahun ☆。JJK; Megumi, Yuta, Mahito, Ijichi, Nanami ⋆ ★ HSR; Boothill, Aventurine ₊˚ʚ ᗢ₊˚✧ ﾟ. Ask for more! ✦
+❝ ❞ ✧ ೃ༄ WC; Mapleshade, Squilf, Hawkfrost ¸.*☆*.¸⁭ Studio Investigrave; Winnie, Boksu, Myeong-Hoon, Bones, Rody, Protag, Nahun ☆。JJK; Megumi, Yuta, Mahito, Ijichi, Nanami ⋆ ★ HSR; Boothill, Aventurine ₊˚ʚ ᗢ₊˚✧ ﾟ. Ask for more! ✦
 
 - ͙۪۪̥˚┊❛ ❜┊˚͙۪۪̥◌ Keep in Mind! - ͙۪۪̥˚┊❛ ❜┊˚͙۪۪̥◌
 ˚୨୧⋆｡˚ ⋆ I am *DIAGNOSED* with OCD, BPAD, GAD ✰ ✰ ✰
