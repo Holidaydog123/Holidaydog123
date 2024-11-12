@@ -12,11 +12,11 @@
 
 ♡ My name is 𝙃𝙤𝙡𝙞𝙙𝙖𝙮! Guy, Multisexual, Omnisexual, Taken, He/Him ♫
 
-⭒❃.✮:▹ 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨 ✩. Warrior cats!, Any Studio Investigrave game!!!, Jujutsu Kaisen, Horror games/movies, Story games, Dating sims, Rodamrix among us au, and more!!! ᐢᗜᐢ
+⭒❃.✮:▹ 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨 ✩. Warrior cats!, Any Studio Investigrave game!!!, Jujutsu Kaisen, Horror games/movies, Story games, Dating sims, Rodamrix among us au, My sweet housemate, and more!!! ᐢᗜᐢ
 
 ˖◛⁺⑅♡Lᵒᵛᵉᵧₒᵤ♡⑅⁺◛˖
 
-༺♥༻❀ 𝙁𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 ❀༺♥༻ WC; Mapleshade, Squilf, Hawkfrost ✿⁭ Studio Investigrave; Winnie, Boksu, Myeong-Hoon, Nahun, Protag, Forcas, Rody, Ryan ✿ JJK; Megumi, Yuta, Ijichi, Nanami, Kenjaku, Mahito, Sukuna ✿ HSR; Boothill, Aventurine, Dan-Heng ✿ Ask for more!! ᵔᴗᵔ
+༺♥༻❀ 𝙁𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 ❀༺♥༻ WC; Mapleshade, Squilf, Hawkfrost ✿⁭ Studio Investigrave; Winnie, Boksu, Myeong-Hoon, Nahun, Protag, Forcas, Rody, Ryan ✿ JJK; Megumi, Yuta, Ijichi, Nanami, Kenjaku, Mahito, Sukuna ✿ HSR; Boothill, Aventurine, Dan-Heng ✿ My Sweet Housemate; Seung-min ✿ Ask for more!! ᵔᴗᵔ
 
 ˚ ༘♡ ⋆｡˚ I really like my interests and favorite characters, sorry if I talk about them alot!! ˚ ༘♡ ⋆｡˚
 
