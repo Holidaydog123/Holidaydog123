@@ -13,7 +13,7 @@
 
 𝐵𝑜𝑟𝑛 𝑡𝑜 𝑑𝑖𝑒.
 
-⏾⋆.˚ 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨 ✩. Warrior cats, Studio Investigrave games, Jujutsu Kaisen, Bungo Stray Dogs, Honkai; Star Rail, Togainu No Chi, Horror games/movies, Visual Novels, Dating sims, and more ★
+☾⋆ ***Interests***. Warrior cats, Studio Investigrave games, Jujutsu Kaisen, Bungo Stray Dogs, Honkai; Star Rail, Togainu No Chi, Horror games/movies, Visual Novels, Dating sims, and more ★
 
 ℓo͟v͟ꫀ ყoυ
 
