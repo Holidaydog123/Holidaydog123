@@ -9,7 +9,7 @@
 
 ༶•┈┈⛧┈♛┈⛧┈┈༶•
 
-𐂯 ***General*** ❧ Guy (He/Him), Omniromantic, Heteroflexible, Taken ⋆˚🐾˖°
+𐂯 ***General*** ❧ Guy (He/Him), Omniromantic, Heteroflexible ⋆˚🐾˖°
 
 𝐵𝑜𝑟𝑛 𝑡𝑜 𝑑𝑖𝑒.
 
